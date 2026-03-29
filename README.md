@@ -88,7 +88,7 @@ All plans billed annually. No hidden charges.
 
 ## Contact
 
-📧 [hello@aviora.io](mailto:hello@aviora.io)  
+📧 [aviora@zohomail.in](mailto:aviora@zohomail.in)  
 🌐 [avioratech.netlify.app](https://avioratech.netlify.app/)
 
 ---
