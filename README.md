@@ -1,4 +1,4 @@
-# Aviora.io — AI-Powered Communication Platform
+# Aviora.io — AI-Powered Automation Startup Company 
 
 > **Automate. Elevate. Aviora.**  
 > Helping businesses communicate smarter with intelligent AI chatbots and automation systems.
